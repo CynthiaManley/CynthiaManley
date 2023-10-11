@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @CynthiaManley
-- 👀 I’m interested in the sounds cats make to communicate with their kittens. 
+- 👀 I’m interested in the sounds animals make to communicate with each other from the depths of the ocean to pets in our homes.
 - 🌱 I’m currently learning how to use R.
 - 💞️ I’m looking to collaborate on music to calm animals.
 - 📫 How to reach me ...
